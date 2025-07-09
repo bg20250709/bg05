@@ -10,4 +10,4 @@
 
 本站为您提供全网最新的樱花视频资源，涵盖了各种精彩影片，包括成人影片、午夜电影以及热门视频。平台致力于为您提供无广告、高清流畅的观影体验，支持全平台播放，让您随时随地享受高质量的娱乐内容。每天更新最新片源，确保您不错过任何精彩影片。
 
-<span style="display:none;">[Canonical link](https://github.com/bg20250709/bg05 ) </span>
+<span style="display:none;">[Canonical link](https://github.com/bg20250709/bg05 ）</span>
